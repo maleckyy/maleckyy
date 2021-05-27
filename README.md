@@ -8,5 +8,5 @@ Im is also interested in producing music.
 
 - 🌱 I’m currently learning theory of music.
 - 🤔 I’m currently working on my engineering thesis
-- 💬 Ask me about anythink :D
+- 💬 Ask me about anything :D
 
