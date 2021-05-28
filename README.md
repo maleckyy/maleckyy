@@ -6,7 +6,10 @@ I especially like java and html launguage.
 Im is also interested in producing music.
 
 
-- 🌱 I’m currently learning theory of music.
-- 🤔 I’m currently working on my engineering thesis
-- 💬 Ask me about anything :D
+
+- 🌱I’m currently working on my engineering thesis
+
+-  I’m currently learning theory of music.🤔
+- 
+-  💬 Ask me about anything :D
 
